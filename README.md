@@ -1,3 +1,8 @@
-aaaaaaaaaaaaaai
-
-uhuhuhuhuhuhuhuhuhu
+ｺﾞﾐの処理が
+　完了しました
+　 ＿＿＿＿
+　[ュュュュ]
+　∥||(ﾟДﾟ)
+　 ||(ﾉ||||)
+　 ||||||||
+　 ￣∪∪￣
